@@ -8,6 +8,6 @@
 
 ![缩略图](https://github.com/shanjixiaboss/FeZaoDuKe-files/blob/master/thumb1.jpg)
 
-![缩略图](https://github.com/shanjixiaboss/FeZaoDuKe-files/blob/master/thumb1.jpg)
+![缩略图](https://github.com/shanjixiaboss/FeZaoDuKe-files/blob/master/thumb2.jpg)
 
 
